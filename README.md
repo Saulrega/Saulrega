@@ -8,7 +8,7 @@
 
 - 💻 Tambien interasado en el desarrollo web y el mundo crypto .
 
-- 🎮 Disfruto de jugar videojuegos y ver series.
+- 🎮 Disfruto de jugar videojuegos y del buen cine.
 
 - 👀 Fun Fact: Me gusta leer sobre filosofía. 
 
