@@ -4,7 +4,7 @@
 
 
 
-- 🤖 Actualmente adquriendo nuevos conocimientos para poder desarrollar proyectos de Marchine Learning.
+- 🤖 Actualmente practicando para poder desarrollar proyectos de Marchine Learning e IA.
 
 - 💻 Tambien interasado en el desarrollo web y el mundo crypto .
 
